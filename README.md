@@ -1,0 +1,1 @@
+Application Newspaper updated from indonesian
